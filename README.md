@@ -30,7 +30,7 @@ During this pandemic, we usually encounter logbooks in almost every facility aro
 ## **Author**
 <img src="pics/mee.png" height="150" width= "150" align="center"> 
 
-### **Ricky P. Edradan Jr. :smirk:**
+ **Ricky P. Edradan Jr. :smirk:**
 
 
 
